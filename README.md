@@ -9,3 +9,6 @@ Again I find myself writing markdown at midnight. Perhaps I shall continue this 
 
 ## Monday, March 24th 2014
 I believe I know what it is I wish to draw. I only hope I can follow through.
+
+## Thursday, March 27 2014
+Three days later on the nose. I'm not sure what to make of this midnight thing.
