@@ -12,3 +12,6 @@ I believe I know what it is I wish to draw. I only hope I can follow through.
 
 ## Thursday, March 27 2014
 Three days later on the nose. I'm not sure what to make of this midnight thing.
+
+## Monday, March 31 2014
+So far so good. Maybe I can do this after all. A labor of love is worth the effort.
