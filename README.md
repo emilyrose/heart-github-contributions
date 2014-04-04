@@ -15,3 +15,6 @@ Three days later on the nose. I'm not sure what to make of this midnight thing.
 
 ## Monday, March 31 2014
 So far so good. Maybe I can do this after all. A labor of love is worth the effort.
+
+## Friday, April 4 2014
+I'm still here. April is off to a rough start, but I will see this through.
