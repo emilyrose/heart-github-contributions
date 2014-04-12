@@ -21,3 +21,6 @@ I'm still here. April is off to a rough start, but I will see this through.
 
 ## Tuesday, April 8 2014
 Almost half way there. I can't wait until this is completed.
+
+## Saturday, April 12 2014
+My first and only entry on a weekend. This is an interesting pattern. 
