@@ -24,3 +24,6 @@ Almost half way there. I can't wait until this is completed.
 
 ## Saturday, April 12 2014
 My first and only entry on a weekend. This is an interesting pattern. 
+
+## Monday, April 14 2014
+Maybe after I finish this drawing I can make something more complex?
