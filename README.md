@@ -10,20 +10,23 @@ Again I find myself writing markdown at midnight. Perhaps I shall continue this 
 ## Monday, March 24th 2014
 I believe I know what it is I wish to draw. I only hope I can follow through.
 
-## Thursday, March 27 2014
+## Thursday, March 27th 2014
 Three days later on the nose. I'm not sure what to make of this midnight thing.
 
-## Monday, March 31 2014
+## Monday, March 31st 2014
 So far so good. Maybe I can do this after all. A labor of love is worth the effort.
 
-## Friday, April 4 2014
+## Friday, April 4th 2014
 I'm still here. April is off to a rough start, but I will see this through.
 
-## Tuesday, April 8 2014
+## Tuesday, April 8th 2014
 Almost half way there. I can't wait until this is completed.
 
-## Saturday, April 12 2014
+## Saturday, April 12th 2014
 My first and only entry on a weekend. This is an interesting pattern. 
 
-## Monday, April 14 2014
+## Monday, April 14th 2014
 Maybe after I finish this drawing I can make something more complex?
+
+## Friday, April 18th 2014
+I forgot to put ordinals on most of my journal dates. Fixed that. 
