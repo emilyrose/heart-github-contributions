@@ -33,3 +33,6 @@ I forgot to put ordinals on most of my journal dates. Fixed that.
 
 ## Monday, April 21st 2014
 I think I know what I'm going to draw next! The next question is when?
+
+## Thursday, April 24th 2014
+"Follow your heart but take your brain with you." — Alfred Adler
