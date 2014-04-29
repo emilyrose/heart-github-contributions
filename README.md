@@ -36,3 +36,6 @@ I think I know what I'm going to draw next! The next question is when?
 
 ## Thursday, April 24th 2014
 "Follow your heart but take your brain with you." — Alfred Adler
+
+## Tuesday, April 29th 2014
+This is the second to last entry. I can't believe I'm going to do make it.
